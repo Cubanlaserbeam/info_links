@@ -11,7 +11,7 @@
 
 ## But China Bad!
 
-- [A Masterpost of Sources for Debunking Xinjiang Propaganda, Reddit](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
+- On Xinjiang and the alleged Uyghur Genocide; [Reddit Masterpost](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
 
 ## Reading Recommendations for beginner socialists
 
