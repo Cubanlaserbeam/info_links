@@ -2,12 +2,12 @@
 
 ## LGBT issues in China
 
-- [Homosexual-inclusive sex education curriculum; Pink News](https://www.pinknews.co.uk/2017/03/07/china-introduces-new-inclusive-sex-education-describes-sexuality-in-the-cutest-way/)
-- [Transgender issues and forward-movements in China; Sixth Tone](https://www.sixthtone.com/news/1005833/in-china%2C-a-lawsuit-galvanizes-the-transgender-rights-movement), [The Economist](https://www.economist.com/china/2020/08/01/a-chinese-trans-woman-wins-a-surprising-legal-victory)
+- Homosexual-inclusive sex education curriculum; [Pink News](https://www.pinknews.co.uk/2017/03/07/china-introduces-new-inclusive-sex-education-describes-sexuality-in-the-cutest-way/)
+- Transgender issues and forward-movements in China; [Sixth Tone](https://www.sixthtone.com/news/1005833/in-china%2C-a-lawsuit-galvanizes-the-transgender-rights-movement), [The Economist](https://www.economist.com/china/2020/08/01/a-chinese-trans-woman-wins-a-surprising-legal-victory)
 
 ## Internet in China
 
-- [On "The Great Firewall" (The Golden Shield Project); The China Wiki with two Western studies](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/)
+- On "The Great Firewall" (The Golden Shield Project); [The China Wiki with two Western studies](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/)
 
 ## But China Bad!
 
