@@ -23,6 +23,8 @@
 
 - [Homegrown Outcasts: North Koreans in Japan](https://youtu.be/6YtTd31I15g)
 
+- refer to [Anti-Anticommunism](#anti-anticommunism)
+
 ## Reading Recommendations for beginner socialists
 
 - [The Three Sources and Three Component Parts of Marxism, by Lenin](https://www.marxists.org/archive/lenin/works/1913/mar/x01.htm)
