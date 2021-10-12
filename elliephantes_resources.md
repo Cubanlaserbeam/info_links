@@ -15,6 +15,14 @@
 
 - [AP News walks back on Xinjiang allegations, The New Atlas](https://youtu.be/78s7yP2BdF0)
 
+- refer to [Anti-Anticommunism](#anti-anticommunism)
+
+## On the DPRK (northern Korea)
+
+- [Loyal citizens of Pyongyang in Seoul](https://youtu.be/BkUMZS-ZegM), a documentary about a different view on their country by defectors
+
+- [Homegrown Outcasts: North Koreans in Japan](https://youtu.be/6YtTd31I15g)
+
 ## Reading Recommendations for beginner socialists
 
 - [The Three Sources and Three Component Parts of Marxism, by Lenin](https://www.marxists.org/archive/lenin/works/1913/mar/x01.htm)
