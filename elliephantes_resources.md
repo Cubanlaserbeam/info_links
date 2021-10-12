@@ -27,7 +27,7 @@
 
 - On Xinjiang and the alleged Uyghur Genocide; [Reddit Masterpost](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
 
-- [Inconsistencies in 'Uyghur , The New Atlas](https://youtu.be/3o8T0v8Rh3c)
+- [Inconsistencies in "Uyghur Testimonies", The New Atlas](https://youtu.be/3o8T0v8Rh3c)
 
 - [AP News walks back on Xinjiang allegations, The New Atlas](https://youtu.be/78s7yP2BdF0)
 
