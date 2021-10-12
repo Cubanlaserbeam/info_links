@@ -31,8 +31,6 @@
 
 - [AP News walks back on Xinjiang allegations, The New Atlas](https://youtu.be/78s7yP2BdF0)
 
-- refer to [Anti-Anticommunism](#anti-anticommunism)
-
 ## On the DPRK (northern Korea)
 
 - [Loyal citizens of Pyongyang in Seoul](https://youtu.be/BkUMZS-ZegM), a documentary about a different view on their country by defectors
