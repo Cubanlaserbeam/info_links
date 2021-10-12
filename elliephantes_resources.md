@@ -9,9 +9,11 @@
 
 - On "The Great Firewall" (The Golden Shield Project); [The China Wiki with two Western studies](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/)
 
-## But China Bad!
+## Uyghur Genocide Allegations
 
 - On Xinjiang and the alleged Uyghur Genocide; [Reddit Masterpost](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
+
+- [AP News walks back on Xinjiang allegations, The New Atlas](https://youtu.be/78s7yP2BdF0)
 
 ## Reading Recommendations for beginner socialists
 
