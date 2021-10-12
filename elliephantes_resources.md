@@ -21,15 +21,15 @@
 
 ## Internet in China
 
-- On "The Great Firewall" (The Golden Shield Project); [The China Wiki with two Western studies](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/)
+- [Intro to Chinese Internet Governance and Control](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/), "The China Wiki" including two Western Studies
 
 ## Uyghur Genocide Allegations
 
 - On Xinjiang and the alleged Uyghur Genocide; [Reddit Masterpost](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
 
-- [Inconsistencies in "Uyghur Testimonies", The New Atlas](https://youtu.be/3o8T0v8Rh3c)
+- [CNN Accidentally Busts Xinjiang Genocide Lies, The New Atlas](https://youtu.be/3o8T0v8Rh3c)
 
-- [AP News walks back on Xinjiang allegations, The New Atlas](https://youtu.be/78s7yP2BdF0)
+- [AP News Confirms NO Uyghur Genocide in Xinjiang China, The New Atlas](https://youtu.be/78s7yP2BdF0)
 
 ## On the DPRK (northern Korea)
 
