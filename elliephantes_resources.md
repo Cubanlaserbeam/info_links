@@ -1,5 +1,19 @@
 # Elliephante's Resources
 
+<!-- toc -->
+
+- Table of Contents
+
+  * [LGBT issues in China](#lgbt-issues-in-china)
+  * [Internet in China](#internet-in-china)
+  * [Uyghur Genocide Allegations](#uyghur-genocide-allegations)
+  * [On the DPRK (northern Korea)](#on-the-dprk-northern-korea)
+  * [Reading recommendations for Beginner Socialists](#reading-recommendations-for-beginner-socialists)
+  * [Anti-Anticommunism](#anti-anticommunism)
+  * [YouTube Channel Recommendations](#youtube-channel-recommendations)
+
+<!-- tocstop -->
+
 ## LGBT issues in China
 
 - Homosexual-inclusive sex education curriculum; [Pink News](https://www.pinknews.co.uk/2017/03/07/china-introduces-new-inclusive-sex-education-describes-sexuality-in-the-cutest-way/)
@@ -27,7 +41,7 @@
 
 - refer to [Anti-Anticommunism](#anti-anticommunism)
 
-## Reading Recommendations for beginner socialists
+## Reading Recommendations for Beginner Socialists
 
 - [The Three Sources and Three Component Parts of Marxism, by Lenin](https://www.marxists.org/archive/lenin/works/1913/mar/x01.htm)
 - [Value, Price and Profit, by Marx](https://www.marxists.org/archive/marx/works/1865/value-price-profit/index.htm)
