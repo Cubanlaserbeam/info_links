@@ -33,7 +33,7 @@
 
 ## On the DPRK (northern Korea)
 
-- [Loyal citizens of Pyongyang in Seoul](https://youtu.be/BkUMZS-ZegM), a documentary about a different view on their country by defectors
+- [Loyal citizens of Pyongyang in Seoul](https://youtu.be/BkUMZS-ZegM), a documentary about a non-monetised view on their country by defectors
 
 - [Homegrown Outcasts: North Koreans in Japan](https://youtu.be/6YtTd31I15g)
 
@@ -52,8 +52,11 @@
 - [Debunking Anti-Communism Masterpost, Reddit](https://www.reddit.com/r/communism/wiki/debunk)
 
 ## YouTube Channel Recommendations
+aimed at giving POVs different from Western narratives
 
 - [Hakim, an Iraqi socialist](https://www.youtube.com/c/ComradeLenin)
 - [Luna Oi, a Vietnamese socialist](https://www.youtube.com/c/Lunaoi)
-- [Richard Medhurst, a Syrian independent journalist](https://www.youtube.com/c/RichardMedhurst)
-- [Spooky Scary Socialist, animated socialist content](https://www.youtube.com/c/SpookyScarySocialist)
+- [Richard Medhurst, an independent Syrian reporter](https://www.youtube.com/c/RichardMedhurst)
+- ["The New Atlas" hosted by Brian Berletic, an independent Thai reporter](https://www.youtube.com/c/thenewatlas)
+- [Daniel Dumbrill, a Chinese-Hong Kong Vlogger](https://www.youtube.com/c/DanielDumbrill)
+- [SyrianGirlpartisan, a Sunni Muslim Syrian](https://www.youtube.com/c/SyrianGirlpartisan)
