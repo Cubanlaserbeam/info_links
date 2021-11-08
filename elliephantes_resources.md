@@ -56,6 +56,7 @@
 ## Other
 
 - [Coup in Myanmar/Burma](https://archive.org/details/coup-in-burma/mode/2up)
+- [Antagonisms between Trotskyism and Leninism](https://workers.today/on-the-problem-of-trotskyism/)
 
 ## YouTube Channel Recommendations
 aimed at giving POVs different from Western narratives
