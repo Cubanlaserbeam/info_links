@@ -10,6 +10,7 @@
   * [On the DPRK (northern Korea)](#on-the-dprk-northern-korea)
   * [Reading recommendations for Beginner Socialists](#reading-recommendations-for-beginner-socialists)
   * [Anti-Anticommunism](#anti-anticommunism)
+  * [Other](#other)
   * [YouTube Channel Recommendations](#youtube-channel-recommendations)
 
 <!-- tocstop -->
@@ -50,6 +51,10 @@
 ## Anti-Anticommunism
 
 - [Debunking Anti-Communism Masterpost, Reddit](https://www.reddit.com/r/communism/wiki/debunk)
+
+## Other
+
+- [Coup in Myanmar/Burma](https://archive.org/details/coup-in-burma/mode/2up)
 
 ## YouTube Channel Recommendations
 aimed at giving POVs different from Western narratives
