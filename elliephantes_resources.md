@@ -61,6 +61,6 @@ aimed at giving POVs different from Western narratives
 
 - [Hakim, an Iraqi socialist](https://www.youtube.com/c/ComradeLenin)
 - [Luna Oi, a Vietnamese socialist](https://www.youtube.com/c/Lunaoi)
-- [Richard Medhurst, an independent Syrian reporter](https://www.youtube.com/c/RichardMedhurst)
-- ["The New Atlas" hosted by Brian Berletic, an independent Thai reporter](https://www.youtube.com/c/thenewatlas)
+- [Richard Medhurst, a Syrian reporter](https://www.youtube.com/c/RichardMedhurst)
+- ["The New Atlas" hosted by Brian Berletic, a Thai reporter](https://www.youtube.com/c/thenewatlas)
 - [Daniel Dumbrill, a Chinese-Hong Kong Vlogger](https://www.youtube.com/c/DanielDumbrill)
