@@ -64,4 +64,3 @@ aimed at giving POVs different from Western narratives
 - [Richard Medhurst, an independent Syrian reporter](https://www.youtube.com/c/RichardMedhurst)
 - ["The New Atlas" hosted by Brian Berletic, an independent Thai reporter](https://www.youtube.com/c/thenewatlas)
 - [Daniel Dumbrill, a Chinese-Hong Kong Vlogger](https://www.youtube.com/c/DanielDumbrill)
-- [SyrianGirlpartisan, a Sunni Muslim Syrian](https://www.youtube.com/c/SyrianGirlpartisan)
