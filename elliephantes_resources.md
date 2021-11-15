@@ -29,7 +29,9 @@ Links to articles I used for my posts, chronological
 
 ## Uyghur Genocide Allegations
 
-- On Xinjiang and the alleged Uyghur Genocide; [Reddit Masterpost](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/), [An independent Italian Study on Xinjiang](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
+- [A Masterpost of Sources for Debunking Xinjiang Propaganda, Reddit](https://www.reddit.com/r/communism/comments/lsaet8/a_masterpost_of_sources_for_debunking_xinjiang/)
+
+- [An independent Italian Study on Xinjiang, CeSEM](http://www.cese-m.eu/cesem/2021/05/disponibile-nuovo-rapporto-sullo-xinjang-promosso-con-eurispes-e-istituto-diplomatico-internazionale/)
 
 - [CNN Accidentally Busts Xinjiang Genocide Lies, The New Atlas](https://youtu.be/3o8T0v8Rh3c)
 
