@@ -1,4 +1,4 @@
-# Elliephante's Resources
+# Resources
 
 <!-- toc -->
 
