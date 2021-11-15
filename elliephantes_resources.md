@@ -4,8 +4,7 @@
 
 - Table of Contents
 
-  * [LGBT issues in China](#lgbt-issues-in-china)
-  * [Internet in China](#internet-in-china)
+  * [Instagram Posts](#instagram-posts)
   * [Uyghur Genocide Allegations](#uyghur-genocide-allegations)
   * [On the DPRK (northern Korea)](#on-the-dprk-northern-korea)
   * [Reading recommendations for Beginner Socialists](#reading-recommendations-for-beginner-socialists)
@@ -15,15 +14,18 @@
 
 <!-- tocstop -->
 
-## LGBT issues in China
+## Instagram Posts
+Links to articles I used for my posts, chronological
 
-- Homosexual-inclusive sex education curriculum; [Pink News](https://www.pinknews.co.uk/2017/03/07/china-introduces-new-inclusive-sex-education-describes-sexuality-in-the-cutest-way/)
-- Transgender issues and forward-movements in China; [Sixth Tone](https://www.sixthtone.com/news/1005833/in-china%2C-a-lawsuit-galvanizes-the-transgender-rights-movement), [The Economist](https://www.economist.com/china/2020/08/01/a-chinese-trans-woman-wins-a-surprising-legal-victory)
-- China's first clinic for transgender children and adolescents; [Global Times](https://www.globaltimes.cn/page/202111/1238161.shtml)
-
-## Internet in China
-
-- [Intro to Chinese Internet Governance and Control](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/), "The China Wiki" including two Western Studies
+- [MSF teams in Gaza observe unusually severe and devastating gunshot injuries](https://www.msf.org/palestine-msf-teams-gaza-observe-unusually-severe-and-devastating-gunshot-injuries)
+- [History of Chinese Internet Regulations](https://thechinawiki.com/2020/11/20/article-intro-to-chinese-internet-governance-and-control/)
+- [China's new inclusive sex education describes sexuality in the cutest way](https://www.pinknews.co.uk/2017/03/07/china-introduces-new-inclusive-sex-education-describes-sexuality-in-the-cutest-way/)
+- [In COINTELPRO, FBI used anarchism to 'disrupt left', attack Vietnam & USSR](https://benjaminnorton.substack.com/p/in-cointelpro-fbi-used-anarchism)
+- [The killing of Gaddafi 10 years ago has resulted in the death of the nation of Libya and the destruction of its people](https://www.rt.com/op-ed/537905-gaddafi-death-ten-years-libya/)
+- [On the 4th of November, 65 years ago, Operation Whirlwind was launched in the defense of socialism in Hungary](https://www.reddit.com/r/sendinthetanks/comments/qmpvni/on_the_4th_of_november_65_years_ago_operation/)
+- [Reiteration of the Antagonistic History of Trotskyism and Leninism](https://workers.today/on-the-problem-of-trotskyism/)
+- [Brother of Dalai Lama rips into CIA for its exploitation of Tibetans](https://genhochiminh.quora.com/Brother-of-Dalai-Lama-rips-into-CIA-for-its-exploitation-of-Tibetans)
+- [The Concentration Camps of Finland](https://reeducation.substack.com/p/the-concentration-camps-of-finland)
 
 ## Uyghur Genocide Allegations
 
