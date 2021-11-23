@@ -27,6 +27,7 @@ Links to articles I used for my posts, chronological
 - [Brother of Dalai Lama rips into CIA for its exploitation of Tibetans](https://genhochiminh.quora.com/Brother-of-Dalai-Lama-rips-into-CIA-for-its-exploitation-of-Tibetans)
 - [The Concentration Camps of Finland](https://reeducation.substack.com/p/the-concentration-camps-of-finland)
 - [China offers solutions to climate change](https://asiatimes.com/2021/11/china-offers-solutions-to-climate-change/)
+- [Western Marxism Loves Purity and Martyrdom, But Not Real Revolution](https://blackagendareport.com/western-marxism-loves-purity-and-martyrdom-not-real-revolution)
 
 ## Uyghur Genocide Allegations
 
