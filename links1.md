@@ -5,6 +5,7 @@
 - Table of Contents
 
   * [Instagram Posts](#instagram-posts)
+  * [Why I hate the U.S. Empire](#why-i-hate-the-us-empire)
   * [Uyghur Genocide Allegations](#uyghur-genocide-allegations)
   * [On the DPRK (northern Korea)](#on-the-dprk-northern-korea)
   * [Reading recommendations for Beginner Socialists](#reading-recommendations-for-beginner-socialists)
@@ -28,6 +29,10 @@ Links to articles I used for my posts, chronological
 - [The Concentration Camps of Finland](https://reeducation.substack.com/p/the-concentration-camps-of-finland)
 - [China offers solutions to climate change](https://asiatimes.com/2021/11/china-offers-solutions-to-climate-change/)
 - [Western Marxism Loves Purity and Martyrdom, But Not Real Revolution](https://blackagendareport.com/western-marxism-loves-purity-and-martyrdom-not-real-revolution)
+
+## Why I hate the U.S. Empire
+
+- [I think this is a nice ongoing list](https://github.com/dessalines/essays/blob/master/us_atrocities.md)
 
 ## Uyghur Genocide Allegations
 
