@@ -77,4 +77,5 @@ aimed at giving POVs different from Western narratives
 - [Luna Oi, a Vietnamese socialist](https://www.youtube.com/c/Lunaoi)
 - [Richard Medhurst, a Syrian reporter](https://www.youtube.com/c/RichardMedhurst)
 - ["The New Atlas" hosted by Brian Berletic, a Thai reporter](https://www.youtube.com/c/thenewatlas)
+   * [Interview with Brian Berletic](https://www.reddit.com/r/NewsWithJingjing/comments/r6cyyx/talkitoutwithjingjing_how_did_a_onetime_us_marine/)
 - [Daniel Dumbrill, a Chinese-Hong Kong Vlogger](https://www.youtube.com/c/DanielDumbrill)
