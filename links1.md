@@ -29,6 +29,7 @@ Links to articles I used for my posts, chronological
 - [The Concentration Camps of Finland](https://reeducation.substack.com/p/the-concentration-camps-of-finland)
 - [China offers solutions to climate change](https://asiatimes.com/2021/11/china-offers-solutions-to-climate-change/)
 - [Western Marxism Loves Purity and Martyrdom, But Not Real Revolution](https://blackagendareport.com/western-marxism-loves-purity-and-martyrdom-not-real-revolution)
+- [China is Not Colonizing Africa](https://blackagendareport.com/china-not-colonizing-africa)
 
 ## Why I hate the U.S. Empire
 
