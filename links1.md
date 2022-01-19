@@ -30,6 +30,10 @@ Links to articles I used for my posts, chronological
 - [China offers solutions to climate change](https://asiatimes.com/2021/11/china-offers-solutions-to-climate-change/)
 - [Western Marxism Loves Purity and Martyrdom, But Not Real Revolution](https://blackagendareport.com/western-marxism-loves-purity-and-martyrdom-not-real-revolution)
 - [China is Not Colonizing Africa](https://blackagendareport.com/china-not-colonizing-africa)
+- [Joseph Stalin - General Soviethread for the 18th of December 2021](https://www.hexbear.net/post/160775)
+- [Polish soldier deserts to Belarus and charges army with killing migrants](https://workers.today/polish-soldier-deserts-to-belarus-and-charges-army-with-killing-migrants/)
+- [After Kazakhstan, the color revolution era is over](https://thecradle.co/Article/columns/5668)
+- [RedSails.org - "Brainwashing"](https://redsails.org/brainwashing/)
 
 ## Why I hate the U.S. Empire
 
